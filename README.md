@@ -208,4 +208,4 @@ Europass CV is available as a full free version, with all features and updates i
 Start creating your professional CV today with **Europass CV**. Download now and take the first step towards your dream job!
 
 ---
-**Last updated:** 2026-10-13 15:42:12 UTC
+**Last updated:** 2026-10-13 21:03:12 UTC
